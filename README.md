@@ -1,2 +1,1 @@
-# Adil-personal-webpage
-@dil ïmtiy@z
+# Adil-personal-webpag
